@@ -1,4 +1,4 @@
-# Lista completa das organizações financiadas por George Soros
+# Lista das organizações financiadas por George Soros
 
 Source: [https://montecastelo.org/lista-completa-das-organizacoes-financiadas-por-george-soros/](https://montecastelo.org/lista-completa-das-organizacoes-financiadas-por-george-soros/)
 
